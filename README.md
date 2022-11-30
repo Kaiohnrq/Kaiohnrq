@@ -4,9 +4,12 @@
 
 
 
-
-
+<br>
+<br>
 Como me contatar: 
+<br>
+<br>
 
-E-mail: Kaio.gunz@gmail.com
-Linkedin.com/in/Kaiohnrq
+E-mail:   Kaio.gunz@gmail.com
+<br>
+Linkedin: Linkedin.com/in/Kaiohnrq
